@@ -2,7 +2,9 @@
 看剧学日语
 
 legal high：
+
 https://nyaa.si/?f=0&c=0_0&q=legal+high
+
 https://subhd.me/search/LEGAL%20HIGH
 
 把字幕给ai要求：
